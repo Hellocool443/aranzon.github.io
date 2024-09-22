@@ -12,5 +12,3 @@ If you choose to pursue legal action against us, we will consider the case close
 We reserve the right to take necessary actions to defend ourselves in any legal matters.
 Changes to This Policy We may update this Privacy Policy from time to time. Your continued use of our services after any changes constitutes your acceptance of the new terms.
 
-Contact Us For any questions regarding this policy, please contact us at [Insert Contact Information].
-
